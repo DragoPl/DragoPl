@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DragoPl
+- 👀 I’m interested in Game Developing
+- 🌱 I’m currently learning How to make good games
+- 😄 Pronouns: He/Him/Batman
+- ⚡ Fun fact: Iam a human
